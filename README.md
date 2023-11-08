@@ -18,7 +18,7 @@ Here is how this repository works:
 
 ## Let's connect!
 
-Stay tuned to get more insights of this amazing opportunity! You can connect with me here on GitHub or check out my LinkedIn profile: https://www.linkedin.com/in/moiz-ahmed-b78882283/.
+Stay tuned to get more insights of this amazing opportunity! You can connect with me here on GitHub or check out my LinkedIn profile: https://www.linkedin.com/in/moizahmed813/.
 
 Do share your feedback with me. 
 Adios! 💫
